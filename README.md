@@ -1,4 +1,4 @@
-# Social conditions facilitate water conservation in a solitary bee
+# Invertebrate-biased diet of burrowing owls in a restored coastal grassland suggests foraging challenges in young restoration sites
 [Madeleine M. Ostwald](https://orcid.org/0000-0002-9869-8835), Kyra Sullivan, Lisa Stratton, Alison Rickard, & [Katja C. Seltmann](https://orcid.org/0000-0001-5354-6048)
 
 In prep
